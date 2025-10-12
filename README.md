@@ -40,10 +40,6 @@
 ## <img src="https://i.pinimg.com/originals/cc/da/1e/ccda1ef122356d4e7e9c461559090d6c.gif" width="40" style="vertical-align: middle; margin-right: 8px;">       𝓓𝓮𝓼𝓬𝓸𝓫𝓮𝓻𝓽𝓪𝓼  
 ❀ 𝓒𝓻𝓲𝓪𝓽𝓲𝓿𝓪 • ❀ 𝓒𝓸𝓶𝓾𝓷𝓲𝓬𝓪𝓽𝓲𝓿𝓪 • ❀ 𝓘𝓷𝓼𝓹𝓲𝓻𝓪𝓭𝓪 𝓹𝓮𝓵𝓪 𝓝𝓪𝓽𝓾𝓻𝓮𝔃𝓪 • ❀ 𝓙𝓸𝓰𝓸𝓼 • ❀ 𝓜ú𝓼𝓲𝓬𝓪  
 
-
-
-> ✦ *𝓐 𝓪𝓻𝓽𝓮 é 𝓶𝓮𝓾 𝓯𝓻𝓪𝓶𝓮𝔀𝓸𝓻𝓴 𝓹𝓪𝓻𝓪 𝓪 𝓿𝓲𝓭𝓪* ✦
-
 <p align="center">
   <img src="https://i.pinimg.com/originals/66/ad/8a/66ad8a8b3cf59cee451e53ec45ad76c3.gif" alt="Gif decorativo">
 </p>
